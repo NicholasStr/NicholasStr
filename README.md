@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @NicholasStr 
+- 👀 I’m interested in Cyber Security and Music 
+- 🌱 I’m currently learning TC Web Programming and Cyber Security
+- 💞️ I’m looking to collaborate on Projects to help me grow my intel
+- 📫 How to reach me; Nicholasstrzykalski@gmail.com
+- ⚡ Fun fact: I Play 6 string bass
